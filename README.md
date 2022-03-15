@@ -1,1 +1,1 @@
-# first
+bir şeyler için
